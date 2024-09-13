@@ -1,4 +1,4 @@
-# [VAYCASİNO GİRİŞ İÇİN TIKLAYINIZ]()
+# [VAYCASİNO GİRİŞ İÇİN TIKLAYINIZ](https://xn--guncelgrs-1pbb.com/kwwsv://ydbfdvíqr218.frp)
 
 *DEVAMMI*
 
